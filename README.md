@@ -1,1 +1,1 @@
-Cuma mas mas biasa yang hobi main Valorant
+Cuma mas mas biasa yang hobi ngegame
